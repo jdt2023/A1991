@@ -9,7 +9,7 @@ https://jdssl.top/index.php/2023/08/02/newvless/
 自己的vlass节点订阅链接：
 
 
-
+https://666.8703.workers.dev/sub/bd0ac72a-604d-4c05-8519-ada950c8c789
 
 
 使用v2rayN有用的IP加在下面的网址后面粘贴在浏览器中寻找新的节点更方便
