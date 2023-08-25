@@ -6,6 +6,9 @@ https://jdssl.top/index.php/2023/08/02/newvless/
 
 https://github.com/freefg/free
 
+
+https://bulinkbulink.com/freefq/free/master/v2
+
 自己的vlass节点订阅链接：
 
 
