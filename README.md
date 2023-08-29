@@ -7,7 +7,7 @@ https://xinzhi1.blogspot.com/2023/08/2023.html
 
 https://jdssl.top/index.php/2023/08/02/newvless/
 
-https://github.com/freefg/free
+https://github.com/freefq/free
 
 
 https://bulinkbulink.com/freefq/free/master/v2
